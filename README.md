@@ -1,1 +1,1 @@
-https://raw.githubusercontent.com/Municipalidadsanramon/Municipalidadsanramon.github.io/refs/heads/main/xu_permiso%20(1).html
+[xu_permiso.pdf](https://github.com/user-attachments/files/19218379/xu_permiso.pdf)
